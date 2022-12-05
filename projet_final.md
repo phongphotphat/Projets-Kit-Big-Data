@@ -7,5 +7,6 @@ Dans ce dossier, vous pouvez trouver 3 soumissions pour le projet, projet_final_
 vous trouverez ici le lien wetransfer pour télécharger également 3 fichiers.
 https://we.tl/t-cb3BmQESqN
 
+Et il me semble que votre mail est invalide ? 
 Cordialement,
 Merci de votre compréhension,
